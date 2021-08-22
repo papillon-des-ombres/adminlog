@@ -1,6 +1,3 @@
-I’m Tony R.
-
-I can design parts. Machine parts. Set up your assembly line. I can even advertise and rebrand your company.
 - Machinist
 - Event Photography
 - Graphic Design
